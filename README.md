@@ -2,7 +2,7 @@
 - 👀 I’m interested in software feild
 - 🌱 I’m currently learning c and java
 - 💞️ I’m looking to collaborate on programming side
-- 📫 How to reach me  mail:balugayu6@gmail.com
+- 📫 How to reach me  mail:niviblessy967@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
